@@ -1,0 +1,2 @@
+# Kaulguds
+Kaulguds Academy is a private educational institution consisting of various bundles of courses to enable students to achieve their goals. Our group of experienced teachers is always keen to clear students' concepts and help them achieve their potential. https://www.kaulgudsacademy.com/ We expertise in VIIIth, IXth, and Xth (SSC/CBSE BOARD), Competitive exams: NTSE, NSO, IMO and higher-level Competitive Exams: MH-CET, IITJEE, NEET, AIIMS, BITSAT, KVPY. We are the most trustworthy, old and  best classes loved by many students residing in the city of Pune.
